@@ -1,4 +1,4 @@
-### Merhaba, Ben Mikail 👋 
+### Hi, I am Mikail 👋 
 * Interested in Data Science 📈📊
 * Strive to Continuously Improve Oneself 🔍
 
